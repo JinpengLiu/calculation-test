@@ -9,10 +9,10 @@
 
 
 
-![](/Users/jinPeng/Desktop/device-2019-08-01-172050.png)
+![](device-2019-08-01-172050.png)
 
 
 
 
 
-![](/Users/jinPeng/Desktop/device-2019-08-01-172432.png)
+![](device-2019-08-01-172432.png)
